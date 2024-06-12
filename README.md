@@ -1,2 +1,1 @@
-# ZackTandy
-About me:
+BSc University of Alberta, 2023 - Specialization in Ecology, Evolution, and Environmental Biology
